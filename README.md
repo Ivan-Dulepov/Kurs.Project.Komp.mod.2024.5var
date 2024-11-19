@@ -1,0 +1,1 @@
+# Kurs.Project.Komp.mod.2024.5var
